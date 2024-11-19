@@ -2,4 +2,4 @@
 
 ##Practica
 
-Evidecnia de que se realizo la practica:)
+Evidencia de que se realizo la practica:)
